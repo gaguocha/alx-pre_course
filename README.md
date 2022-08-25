@@ -1,1 +1,1 @@
-Completing thr task
+Completing the task
